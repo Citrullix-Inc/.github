@@ -1,2 +1,5 @@
-# .github
-Welcome to Citrullix Inc. official Github!
+- 👋 Hi, we're Citrullix Inc. @citrullxi
+- 👀 we're interested in coding and programming, AI and many more geeky greeky stuff.
+- 🌱 we'rem currently working of different projects.
+- 💞️ we're looking to collaborate on projects and new techs.
+- 📫 How to reach us @citrullxi on all social media network.
