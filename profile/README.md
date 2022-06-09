@@ -1,7 +1,7 @@
-## Hi there 👋
+Hi there 👋
 
 🙋‍♀️ World’s leading companies in innovation, Artificial Intelligence & ICT, Information Systems Technology, Information Security and Robotics.
-🌈 join our CEO's discord for Contribution and more: https://discord.gg/smYKVq9Ewb
+🌈 join our CEO **Frederick Dineen**'s discord for Contribution and more: https://discord.gg/smYKVq9Ewb
 👩‍💻 Useful resources https://discord.gg/smYKVq9Ewb www.citrullix.com
 🍿 Fun facts - We're behind a the newest digital banking and fin-tech newest techs.
 
