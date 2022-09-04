@@ -1,6 +1,6 @@
 Hi there 👋
 
-😃💁 We are world’s leading companies in innovation, artificial intelligence & ICT, information systems technology, information security and robotics.
+😃💁 We are world’s leading company in innovation, artificial intelligence & ICT, information systems technology, information security and robotics.
 
 🔗 join our CEO **Frederick Dineen**'s Discord for contribution and more: https://discord.gg/smYKVq9Ewb
 
