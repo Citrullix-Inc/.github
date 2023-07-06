@@ -5,7 +5,7 @@ Hi there 👋
 🔗 join our CEO **Frederick Dineen**'s Discord for contribution and more: https://discord.gg/smYKVq9Ewb
 
 👩‍💻 Useful resources:
-🌐 www.citrullix.com
+🌐 www.citrullix.co
 
 🍿 Fun facts - We're behind a the newest digital banking and fin-tech newest techs.
 
